@@ -20,4 +20,4 @@
 Estudante de ADS, fã de desafios e sempre tentando buscar experiência e conquistas.
 
 ## Email para contato:
-- kayquegruiz@hotmail.com
+- kayquegabrielruiz@hotmail.com
